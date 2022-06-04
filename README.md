@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @soophal
+- 👀 I’m interested in design and coding.
